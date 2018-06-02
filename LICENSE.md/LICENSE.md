@@ -1,1 +1,1 @@
-cuz we lazy
+No stealing of gae data.
